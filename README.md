@@ -1,4 +1,13 @@
-### Hi there 👋
+## Hi there , nice to see you here :wave: 
+
+###### Currently a student
+###### likes coding
+###### preferentially JAVA user
+---
+## **FOLLOW ME FOR EXCITING CODES :hearts: **
+---
+##### Link of my social media handle:- https://instagram.com/_riddhi03
+
 
 <!--
 **Riddhi2003/Riddhi2003** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -13,4 +22,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+
