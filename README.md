@@ -4,7 +4,7 @@
 ###### likes coding
 ###### preferentially JAVA user
 ---
-## **FOLLOW ME FOR EXCITING CODES :hearts: **
+## **FOLLOW ME FOR EXCITING CODES :hearts:**
 ---
 ##### Link of my social media handle:- https://instagram.com/_riddhi03
 
